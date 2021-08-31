@@ -1,2 +1,2 @@
 # nyjahvimm.github.io
-lol fune
+L stupid ean imagine clicking what a stupid retard loser smh
